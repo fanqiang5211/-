@@ -14,3 +14,4 @@ http://xingyu.pkbnb.com/
 PC、安卓、IOS、路由  ！一起用！ 全系列支持
 	
 		
+www.xingyuss.com
